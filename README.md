@@ -6,7 +6,8 @@
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
-<!---
-abuziyaan/abuziyaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<birthdaywishes!---moriom
+abuziyaan/abuziyaan is a ✨ special ✨ repository because its `REAnDME.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![1000048992](https://github.com/user-attachments/assets/9bda1347-3fbf-47e5-829c-7f70909bced8)
